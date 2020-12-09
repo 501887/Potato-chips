@@ -1,0 +1,1 @@
+potatoes , slicer , water , oil ,chilli powder or pepper and salt
